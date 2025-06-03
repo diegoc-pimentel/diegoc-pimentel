@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **diego05.pimentel@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1l8Tv_d0lkltOGVcgjijn0vXkduam4xTF/view?usp=sharing](https://drive.google.com/file/d/1l8Tv_d0lkltOGVcgjijn0vXkduam4xTF/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1l8Tv_d0lkltOGVcgjijn0vXkduam4xTF/view?usp=sharing](https://drive.google.com/file/d/1-5CZNZRyWZ4G9qkeJFVw0D_mKDUiutLO/view?usp=sharing)
 
 - ⚡ Fun fact **I think I'm funny**
 
